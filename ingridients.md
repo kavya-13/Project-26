@@ -1,0 +1,1 @@
+Chocolate premix, milk, cake vinegar, chocolate issence and cream, liquid food color
